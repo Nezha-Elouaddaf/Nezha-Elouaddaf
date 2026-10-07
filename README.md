@@ -38,6 +38,3 @@ Git & GitHub
 📧 Email: Coming soon
 
 ✨ Always learning, always building.
-📧 Email: Coming soon
-
-✨ Always learning, always building.
